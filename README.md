@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Aakaash0
 - 👀 I’m interested in Coding, website Designing, Web Development
-- 🌱 I’m currently BSC IT Graduate and knows some coding languages.
+- 🌱 I have recently completed my MCA Post Graduate degree from Mumbai University
 - 💞️ I’m looking to collaborate on projects as Freelancer, as a job.
 - 📫 You can reach to me via mail id- aakashchaurasiya07@gmail.com
 - You can check some webpage i have created
